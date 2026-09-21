@@ -13,7 +13,7 @@
 
 *你會記得你自己吃過幾個麵包嗎*
 
-歡迎造訪我最喜歡的網站：[If u whatch this, you are gay.](https://youtu.be/dQw4w9WgXcQ?si=D1CTmg-D2eB5YzR-)
+歡迎造訪我最喜歡的網站：[If u watch this, you are gay.](https://youtu.be/dQw4w9WgXcQ?si=D1CTmg-D2eB5YzR-)
 
 ![](IMG_20260723_012906_204.jpg)
 
