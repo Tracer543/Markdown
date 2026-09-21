@@ -1,7 +1,10 @@
 # 周鈺偉
 
 ## 關於我
+年齡：20
+種族：人類
 
+## 技能
 吃飯、睡覺、活著
 
 **耍廢**
@@ -9,7 +12,7 @@
 
 *你會記得你自己吃過幾個麵包嗎*
 
-歡迎造訪我最喜歡的網站：[GitHub](https://github.com)
+歡迎造訪我最喜歡的網站：[If u whatch this, you are gay.](https://youtu.be/dQw4w9WgXcQ?si=D1CTmg-D2eB5YzR-)
 
 ![](IMG_20260723_012906_204.jpg)
 
